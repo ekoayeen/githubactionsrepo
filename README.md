@@ -1,1 +1,0 @@
-# DevOpstrainingmar2023
